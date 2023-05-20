@@ -1,9 +1,9 @@
 # Name	 :KASAB SHRAVAN KUMAR						
 ## Contact					
 1. Email:herekarshravan129@gmail.com
-2.  Phone:9885252129    
+2.  Phone:    
 3. Address:3-40 irlapalli chevella rangareddy telangana 501203
-	 [LinkedIn Profile](https://www.linkedin.com/in/k-shravan-kumar-1741b319a/)
+	 [LinkedIn Profile](https://www.linkedin.com/in/shravankumar01/)
 
 ## CARRER OBJECTIVE:			
  **Seeking a position to apply the knowledge that I have learned and explore abilities, skills, towards my duties and to excel in field of Software/Hardware**
@@ -12,7 +12,7 @@
 		
 > B.Tech.  in Electronics And Communication Engineering   (2018-2021)
 Vidya Jyothi Institute of Technology
-(CGPA 7.7)
+(CGPA 8.2)
 
 > Diploma SBTET(2015-2018)
 Ellenki College Of Engineering And Technology
@@ -82,14 +82,8 @@ at VJIT – feb 2020**
 > [_**Participated in a Social welfare program conducted by INDIAREDEFINED Jun 2020**_](https://www.linkedin.com/posts/k-shravan-kumar-1741b319a_internship-ngo-india-activity-6686835383461920768-THDX)
 
 ## PERSONAL INFORMATION:
-1. **Mother’s Name**:k.Rajakumari
-1. **Father’s Name**:k.Bansilal
-1. **Nationality**:Indian
-1. **Date of Birth**:20/08/1999
-1. **PAN No**: KSDPS0509B
 1. **Languages Known**:English,Hindi,Telugu
 
 
 ###   (Signature)
-1. Date:24/07/2020
-1. [KASAB SHRAVAN KUMAR](https://drive.google.com/file/d/1yy0W3V6BDk_0Kf1C32sWrtC6vBbUVJRb/view?usp=sharing)
+1. [KASAB SHRAVAN KUMAR]
